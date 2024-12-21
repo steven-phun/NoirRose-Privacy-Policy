@@ -1,1 +1,1 @@
-# NoirRose-Codex-Privacy-Policy
+# Codex-Privacy-Policy
